@@ -1,1 +1,1 @@
-tralalala
+cine mai modifica readme ul meu e neserios
